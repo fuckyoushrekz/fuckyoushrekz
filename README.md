@@ -7,7 +7,7 @@ C# sucks :)
 
 ## Contact me
 
- - Discord: decxmber.#7773
+ - Discord: Staay#7773
  - [RAGH Community](https://discord.gg/jJQ8gm24b6)
  - [Miss Community](https://discord.gg/jCC4vQuCWJ)
 
